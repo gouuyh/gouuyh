@@ -1,4 +1,4 @@
-## Welcome! Here is <ruby>時夜吉羽<rt>gouuyh</rt></ruby> 👋
+## Welcome! Here is <ruby>含章<rt>gouuyh</rt></ruby> 👋
 
 An undergraduate student of business administration, but interested in computer technoligy.
 
